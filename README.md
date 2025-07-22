@@ -4,6 +4,13 @@
 - 💞️ I’m looking to collaborate on Russian Companies
 - 📫 You can reach me by writing to me on hassiy@disroot.org
 
+КАКАААШККИИИИИИ
+
+КАКАААААААААААААААААААШКИИИИИИИИИИИИИИИИИИИИИИИИИИИИИ
+
+
+КАКАШЕЧКИИИИ ПИСЕЧКИ ПОПОЧКИ И ВСЕ В КАКАШЕЧКАХ КАКАШЕЧКИИИИИИИИИИИИИИИИИИИИИИИИИИИИИИИИИИИИИИИИ
+
 <!---
 HassiyYT/HassiyYT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
